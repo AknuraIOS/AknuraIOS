@@ -13,7 +13,8 @@ Here are some ideas to get you started:
 - 💬 Ask me about IOS
 - ⚡ Fun fact: I love my Job
 
-[Vk](https://vk.com/aknurchik)
+[![Unknown](https://user-images.githubusercontent.com/47109731/108050260-964b4f80-7073-11eb-8a48-9f68fc9cd454.png)
+](https://vk.com/aknurchik)
 [youtube](https://www.youtube.com/channel/UCMFvdK9HKPG1Ajb5CvDaVLA)
 [instagram](https://www.instagram.com/s.aknura.01/)
 
