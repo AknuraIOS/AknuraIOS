@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: I love my Job
 
 [vk](https://vk.com/feed)
-[telegram](aknuraaa01)
+[telegram](https://web.telegram.org/#/im)
 [instagram](https://www.instagram.com/s.aknura.01/)
 
 -->
