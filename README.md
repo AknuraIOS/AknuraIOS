@@ -13,8 +13,8 @@ Here are some ideas to get you started:
 - 💬 Ask me about IOS
 - ⚡ Fun fact: I love my Job
 
-[vk](https://www.instagram.com/s.aknura.01/)
-[telegram](https://www.instagram.com/s.aknura.01/)
+[vk](https://vk.com/feed)
+[telegram](aknuraaa01)
 [instagram](https://www.instagram.com/s.aknura.01/)
 
 -->
